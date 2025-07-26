@@ -25,11 +25,11 @@
 
 - 📫 How to reach me **nasifzeehan1@gmail.com**
 
-- 👨‍💻 All of my projects are available at [My Portfolio](https://myportfolio-f0ba.onrender.com)
+- 👨‍💻 All of my projects are available at [My Portfolio](https://nasifjihan.onrender.com)
 
 - 📝 I regularly post on [LinkedIn](https://www.linkedin.com/in/nasif-jihan)
 
-- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/14i7dsM-FzlUkuBPAvym5zWLn93Ke0qRw/view?usp=sharing)
+- 📄 Know about my experiences [My Resume](https://drive.usercontent.google.com/download?id=1it6xASTSXLcpXJLff4npR3BgHAKsLCx9&export=download)
 
 - ⚡ I love to **Think, Ride and Play**
 
